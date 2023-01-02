@@ -1,4 +1,4 @@
-![Design and Development](https://github.com/rami-92/rami-92/blob/main/My%20project-1.png)
+![Design and Development](https://github.com/rami-92/rami-92/blob/main/My%20project-2.png)
 
 ### Hi, there 👋
 
